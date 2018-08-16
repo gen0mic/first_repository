@@ -9,4 +9,4 @@ glup glup
 
 what I was doing when I was doing what I was doing
 
-duck duck GOOSE!
+duck duck GOOSE! Get out of here ya dang ducks!
